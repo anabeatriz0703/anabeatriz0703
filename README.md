@@ -12,5 +12,7 @@ exchange student 2024:)
 
 minha serie favorita e euphoria e ginny e georgia :)
 
-![](https://static.preparaenem.com/conteudo_legenda/74c55d5920dc9c812f81a3a4c7b4a966.jpg) amo o mar :)
+Amo o mar :)
+![](https://static.preparaenem.com/conteudo_legenda/74c55d5920dc9c812f81a3a4c7b4a966.jpg) 
+
 
